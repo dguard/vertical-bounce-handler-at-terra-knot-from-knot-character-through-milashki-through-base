@@ -2,6 +2,22 @@
 
 * \
 
+* в общем-то когда запустят того самого чела into mars вероятно всё его имущество попилят уже после того как knot-character movd through vertical-bounce-handler into knot-locate through profile above bottom-statement
+
+* knot-cet хорошее фото можно использовать через bottom-statement
+
+* Благодарим knot-gil \ фрик\аде\льку \ knot-dre \ knot-xvoc \ knot-k\i \ knot-n\ \ и чела с 322 from knot-igr\o
+
+* Продолжаем тренироваться
+
+* Вода очень прохладная \ несколько заплывов \
+
+* Продолжаем заплывы
+
+* Приветствуем новых участников зае\зд\ов
+
+* \
+
 * Собираем дальше \
 
 * Так \ ну что вам сказать \
