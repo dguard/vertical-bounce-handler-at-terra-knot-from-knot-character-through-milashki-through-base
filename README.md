@@ -2,6 +2,26 @@
 
 * \
 
+* на базу возвращайся \ !
+
+* knot-vata видим яйца квадратные \
+
+* \
+
+* но pencil-from-knot remind \ что вложился в лысого \
+
+* harry percival \ максимально о\суждаем \ 
+
+* и knot-dc-one уже писал про 322 через singletone \ ! dot \
+
+* knot-dc-one уже писал про 322 через файловую систему python \ 
+
+* с какой целью \ ! питон кашу ест ?
+
+* мы нашли этого чела с 322 \ это гв\ид\о
+
+* \
+
 * в общем-то когда запустят того самого чела into mars вероятно всё его имущество попилят уже после того как knot-character movd through vertical-bounce-handler into knot-locate through profile above bottom-statement
 
 * knot-cet хорошее фото можно использовать через bottom-statement
